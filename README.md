@@ -1,5 +1,9 @@
 ### Hi there 👋
 
+This is a non-work account with low activity. My daily work is done in the profile bellow.
+
+![Screenshot 2025-04-19 at 2 10 57 PM](https://github.com/user-attachments/assets/67b51ff6-4448-4399-8174-52e75789c386)
+
 <!--
 **BrennoLima/BrennoLima** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
